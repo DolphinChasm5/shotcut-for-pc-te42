@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows advanced Plugin: 4K-export & title-animation is the best Shotcut for PC | Shotcut for Windows plugin, featuring 4K-export and title-animation.
 
 
 
